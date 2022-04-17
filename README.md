@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ELMANNOUTI
-- 👀 I’m interested in all information about cybersucerity and Devlopment 
+- 👀 I’m interested in all information about cybersecurity and Development Informatique
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me you can contacte me to my whatsapp +212612783138
